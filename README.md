@@ -9,7 +9,7 @@
 [Medidas y oportunidades para atender los retos ambientales desde el entorno personal y profesional](Medidas-y-oprotununidades.md) 🌐  Medidas y oportunidades para atender los retos ambientales desde el entorno personal y profesional.
 
 
-[Practicas sostenibles en el ambiente personal](Practicas-sostenibles-en-el-ambiente-personal.md) 🌐 Prácticas sostenibles en ele ambiente personal.
+[Practicas sostenibles en el ambiente personal](Practicas-sostenibles-en-el-ambiente-personal.md) 🌐 Prácticas sostenibles en el ambiente personal.
 
 
 ---
